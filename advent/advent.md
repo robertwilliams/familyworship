@@ -4,5 +4,5 @@ Tonight is the beginning of Advent.  Advent just means "coming".  It is the time
 
 Each Sunday we will light another candle, and then on Christmas Eve, we'll light the last one.
 
-* [Advent Wreath](adventwreat.md)
+* [Advent Wreath](adventwreath.md)
 * [First Sunday](firstsunday.md)

@@ -2,4 +2,4 @@
 
 Things I use for family worship.
 
-* [Advent](advent/README.md)
+* [Advent](advent/)

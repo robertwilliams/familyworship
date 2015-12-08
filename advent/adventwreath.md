@@ -12,6 +12,6 @@ The last thing to notice is that the candles each give us light in the darkness.
 
 But did you know that *we* are supposed to be light, too?  Here's what the Bible says:
 
-> Matthew 5:14-16 “You are the light of the world. A city set on a hill cannot be hidden. Nor do people light a lamp and put it under a basket, but on a stand, and it gives light to all in the house. In the same way, let your light shine before others, so that they may see your good works and give glory to your Father who is in heaven.
+> Matthew 5:14-16 “You are the light of the world. A city set on a hill cannot be hidden. Nor do people light a lamp and put it under a basket, but on a stand, and it gives light to all in the house. In the same way, let your light shine before others, so that they may see your good works and give glory to your Father who is in heaven.”
 
 > Philippians 2:14-16 Do all things without grumbling or disputing, that you may be blameless and innocent, children of God without blemish in the midst of a crooked and twisted generation, among whom you shine as lights in the world, holding fast to the word of life

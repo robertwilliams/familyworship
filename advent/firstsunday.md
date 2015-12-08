@@ -51,4 +51,4 @@ So we remember how people waited and waited for Jesus to come the first time, an
 
 Prayer:
 
-> O God,  rejoicing,  we remember the promise of your Son. As the light from this candle,  may the blessing of Christ come upon us,  brightening our way  and guiding us by his truth.  May Christ our Savior bring life  into the darkness of our world, and to us, as we wait for his coming. We ask this through Christ our Lord. Amen
+> O God,  rejoicing,  we remember the promise of your Son.   As the light from this candle,  may the blessing of Christ come upon us,  brightening our way  and guiding us by his truth.  May Christ our Savior bring life  into the darkness of our world,  and to us, as we wait for his coming.   We ask this through Christ our Lord. Amen
